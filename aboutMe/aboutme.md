@@ -34,6 +34,14 @@ This was my first job I as a stock keeper and general manager. I used to manage 
 2017– currently working 
 My responsibilities here are more so of general manger. I keep track of production head the stock department and maintain all software’s and running hardware’s in the company. I also come up with strategic plans for further development and growth. 
 
+skills :
+software development- 50%
+managment- 90%
+team work - 85%
+communication skills - 85%
+m=self motivation - 70%
+problem solving - 70%
+
 HOBBIES
 Reading 
 Swimming 
