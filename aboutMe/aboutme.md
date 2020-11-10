@@ -26,6 +26,7 @@ Middle school and high school. I did O-levels in which I achieved an excellent g
 College years. Very hard working and self-educating years. I studied Diploma in computing and have great knowledge of computer programming. I received two diplomas and one higher diploma in computing from NCC education. 
 	I am also currently doing online studies using courser, GitHub and other online forums.
 	I am also a part of a Hub called Swahilibox where regular seminars are held and I participate to increase my knowledge on computers.
+
 WORK EXPERIENCE
 	Burhani Stores (Glass and Hardware)
 2016 October– 2016 December
